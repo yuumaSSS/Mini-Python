@@ -1,3 +1,3 @@
 # Mini Python Projects
 
-Is all about *creative!*
+It's all about **DEDICATION**
